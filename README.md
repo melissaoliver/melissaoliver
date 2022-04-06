@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @melissaoliver
-- 👀 I’m interested in ... a djessica 
+- 👀 I’m interested in ...
 - 🌱 I’m currently learning ... nada 
 - 💞️ I’m looking to collaborate on ...todas as coisas possiveis 
 - 📫 How to reach me ...andando 
